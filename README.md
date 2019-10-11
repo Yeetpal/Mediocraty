@@ -1,0 +1,2 @@
+# Mediocraty
+literally the name
